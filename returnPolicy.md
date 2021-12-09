@@ -33,7 +33,7 @@ For the purposes of this Return and Refund Policy:
 
 ### Your Order Cancellation Rights
 You are entitled to cancel Your Order within 1 day without giving any reason for doing so.
-The deadline for cancelling an Order is 1 day from the date on which You received the Goods or on which a third party you have appointed, who is not the carrier, takes possession of the product delivered.
+The deadline for cancelling an Order is 2 days from the date on which You received the Goods or on which a third party you have appointed, who is not the carrier, takes possession of the product delivered.
 In order to exercise Your right of cancellation, You must inform Us of your decision by means of a clear statement. You can inform us of your decision by:
 
 •	By phone number: +2658 Segoe UI 84114041
